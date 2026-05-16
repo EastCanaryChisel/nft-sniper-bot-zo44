@@ -1,4 +1,4 @@
-# 
+# new nft sniper bot | floor-sweeping + cross-market-arbitrage is the best nft sniper bot, featuring floor-sweeping and cross-market-arbitrage. Fast, smart, and optimized for NFT
 
 
 
